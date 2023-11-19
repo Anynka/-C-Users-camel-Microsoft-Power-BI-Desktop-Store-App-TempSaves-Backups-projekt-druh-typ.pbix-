@@ -1,0 +1,1 @@
+# -C-Users-camel-Microsoft-Power-BI-Desktop-Store-App-TempSaves-Backups-projekt-druh-typ.pbix-
